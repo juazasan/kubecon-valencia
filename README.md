@@ -20,14 +20,18 @@ Some directions from those who are visiting Valencia for the first time. Will ke
 - La Sangu: https://lasangu.com/
 - La Sastreria: https://lasastreriavalencia.com/
 - Come y Calle (awesome burgers): https://www.tripadvisor.com/Restaurant_Review-g187529-d7342859-Reviews-Come_Calla-Valencia_Province_of_Valencia_Valencian_Country.html
+- **Central Bar** (opens till 15:00 only): https://m.centralbar.es/
+- Restaurante Puerta del Mar: https://www.restaurantepuertadelmar.com/
 
 ## International
 
-- Tastem (**): https://tastem.com/ 
-- Tora: https://www.tripadvisor.com/Restaurant_Review-g187529-d6457448-Reviews-Tora-Valencia_Province_of_Valencia_Valencian_Country.html
+- **Tastem (\**)**: https://tastem.com/ 
+- **Tora**: https://www.tripadvisor.com/Restaurant_Review-g187529-d6457448-Reviews-Tora-Valencia_Province_of_Valencia_Valencian_Country.html
 - **Mil Grullas (awesome place to sit outsite)**: https://milgrullasvalencia.com/
 - **Marinetta Mia**: https://marinetta.net/ 
+- Infraganti (take away): https://infraganti.net/
 - Beirut: https://www.beirutrestaurantes.com/
+- Hundred (burgers): https://hundredburgers.com/carta
 
 (*It can be a bit expensive)
 
@@ -39,4 +43,11 @@ Some directions from those who are visiting Valencia for the first time. Will ke
 
 # Sightseeing
 
-[TODO]
+- **Mercat de Colon**: https://mercadocolon.es/
+- **Mercado Central**: https://www.mercadocentralvalencia.es/
+- **Ciutat Vella**: https://www.thingstodovalencia.com/destination/ciutat-vella/
+- Museu de les Arts: https://www.visitvalencia.com/en/what-to-see-valencia/city-of-arts-and-ciences/city-of-arts-and-sciences-monuments
+- Playa de la Malvarrosa: https://www.tripadvisor.com/Attraction_Review-g187529-d4555666-Reviews-Playa_de_la_Malvarrosa-Valencia_Province_of_Valencia_Valencian_Country.html
+- Torres de Serrano (take the stairs..): https://en.wikipedia.org/wiki/Torres_de_Serranos
+- **Jardín del Turia (aka the local Central Park ;) )**: https://www.valenciabonita.es/2021/06/14/jardin-del-turia/
+- **Plaça del Ajuntament**: https://www.google.com/maps/place/Pla%C3%A7a+de+l'Ajuntament/@39.4720767,-0.375433,17.23z/data=!4m13!1m7!3m6!1s0xd604f4cf0efb06f:0xb4a351011f7f1d39!2sValencia!3b1!8m2!3d39.4699075!4d-0.3762881!3m4!1s0xd604f54c438bba5:0xb2eb0eca85a322aa!8m2!3d39.4698148!4d-0.3763622
