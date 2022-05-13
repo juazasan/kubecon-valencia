@@ -19,6 +19,7 @@ Some directions from those who are visiting Valencia for the first time. Will ke
 - **Restaurante Ciro**: https://www.cirorestaurante.es/
 - La Sangu: https://lasangu.com/
 - La Sastreria: https://lasastreriavalencia.com/
+- Come y Calle (awesome burgers): https://www.tripadvisor.com/Restaurant_Review-g187529-d7342859-Reviews-Come_Calla-Valencia_Province_of_Valencia_Valencian_Country.html
 
 ## Japanese:
 
