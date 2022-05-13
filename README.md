@@ -6,7 +6,7 @@ Some directions from those who are visiting Valencia for the first time. Will ke
 ## Mediterranean Food and Tapas:
 
 - **Vaqueta Gastrobar**: https://www.vaquetagastromercat.com/ 
-- Trinquet Gastrobar: https://pelayogastrotrinquet.es/ 
+- **Trinquet Gastrobar (with a local secret inside)**: https://pelayogastrotrinquet.es/ 
 - **Gastromantic**: https://www.tripadvisor.com/Restaurant_Review-g187529-d7342362-Reviews-Gastromantic-Valencia_Province_of_Valencia_Valencian_Country.html 
 - **Deskarat**: https://www.deskarat.com/
 - El Racó de la Paella: http://elracodelapaella.es/ 
@@ -21,15 +21,13 @@ Some directions from those who are visiting Valencia for the first time. Will ke
 - La Sastreria: https://lasastreriavalencia.com/
 - Come y Calle (awesome burgers): https://www.tripadvisor.com/Restaurant_Review-g187529-d7342859-Reviews-Come_Calla-Valencia_Province_of_Valencia_Valencian_Country.html
 
-## Japanese:
+## International
 
 - Tastem (**): https://tastem.com/ 
 - Tora: https://www.tripadvisor.com/Restaurant_Review-g187529-d6457448-Reviews-Tora-Valencia_Province_of_Valencia_Valencian_Country.html
 - **Mil Grullas (awesome place to sit outsite)**: https://milgrullasvalencia.com/
-
-## Italian:
-
 - **Marinetta Mia**: https://marinetta.net/ 
+- Beirut: https://www.beirutrestaurantes.com/
 
 (*It can be a bit expensive)
 
