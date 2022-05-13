@@ -11,7 +11,7 @@ Some directions from those who are visiting Valencia for the first time. Will ke
 - **Deskarat**: https://www.deskarat.com/
 - El Racó de la Paella: http://elracodelapaella.es/ 
 - Fraula (*Daily menu for lunch at an awesome price. Can be expensive at night): https://fraula.es/ 
-- **Mercatbar (**)**: https://www.mercatbar.es/
+- **Mercatbar (\**)**: https://www.mercatbar.es/
 - Bar Mistela: https://barmistela.com/ 
 - **Bar & Kitchen (awesome place to sit outside and have some tapas)**: https://www.mercadodetapineria.com/team/barkitchen/ 
 - Bar Cremaet: https://barcremaet.com/
