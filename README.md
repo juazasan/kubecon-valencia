@@ -1,5 +1,5 @@
 # kubecon-valencia
-Some directions from those who are visiting Valencia for the first time. Will keep updating the list as much as I can before the event starts.
+Some directions for those who are visiting Valencia for the first time. Will keep updating the list as much as I can before the event starts.
 
 # Restaurants
 
